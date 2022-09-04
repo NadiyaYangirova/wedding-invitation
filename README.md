@@ -1,1 +1,1 @@
-* [Ссылка на проект](https://adele94.github.io/wedding-invitation/index.html)
+* [Ссылка на проект](https://nadiyayangirova.github.io/wedding-invitation/)
